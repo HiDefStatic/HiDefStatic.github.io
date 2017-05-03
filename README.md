@@ -1,0 +1,1 @@
+# HiDefStatic.github.io
